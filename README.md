@@ -3,6 +3,6 @@ changing a few things here
 2. Place - he also says hehehehehe. And I feel so annoyed. But I love him a lot too. 
 3. Address -- cca
 4. street  -- vasant kunj
-5. c-1/2/3/4/5
+5. c-1/2/3/4/5 --- oye twadi, twadi oyeeeeeeee. Yahoooooo
 6. b - 11, 22/
 7. c -4
