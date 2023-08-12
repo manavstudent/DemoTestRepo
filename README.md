@@ -1,5 +1,5 @@
 changing a few things here
-1. Name - daniel lima is a good boy and he goes to school everyday. 
+1. Name - daniel lima 
 2. Place
 3. Address
 4. street  -- vasant kunj
