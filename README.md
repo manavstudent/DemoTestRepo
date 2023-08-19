@@ -9,5 +9,5 @@ changing a few things here
 8. Joy Lived in C1. 
 9. Sai live in ohio 
 10. New Sector b-11 Mayuuut
-11. Arun C4
-12. Raghav B12
+11. Adding some stupic changes.
+
